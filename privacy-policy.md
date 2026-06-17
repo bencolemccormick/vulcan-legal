@@ -68,4 +68,4 @@ reflected by updating the "Last updated" date above.
 If you have questions about this Privacy Policy or wish to request data
 deletion, contact us at:
 
-**bcole3773@gmail.com**
+**vulcanmarketssupport@gmail.com**
